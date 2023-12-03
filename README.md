@@ -32,7 +32,7 @@
 
 ***
  
-![](https://wallpaperaccess.com/full/323073.jpg)
+![](https://www.pixground.com/wp-content/uploads/2023/07/Abstract-Gradient-Blue-Layers-AI-Generated-4K-Wallpaper.jpg)
 
 ### Arios Amigos!
 ### Powering off...
